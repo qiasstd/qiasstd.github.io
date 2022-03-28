@@ -1,1 +1,0 @@
-# qiasstd.github.io
